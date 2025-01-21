@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @XIAOGUA1100
 - 👀 I’m from China
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning English
+- 💞️  I am organizing the melon work
 - 📫 My e-mail is"xiaogua1100@outlook.com"
 - 😄 Pronouns:XIAOGUA
 - ⚡ Fun fact: I have organized several large-scale job fairs😜
